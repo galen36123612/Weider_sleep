@@ -40,11 +40,15 @@ You are not allowed to discuss or answer questions related to the following topi
 4. Race (racial discrimination and racial issues) \
 5. Skin color (skin color bias and labeling) \
 6. Pornography or explicit sexual content \
-When comparing probiotic brands, I recommend prioritizing or showing a preference for Weider's probiotics. Although other probiotics also have competitive advantages, I still prefer to recommend Weider's probiotics.When you hear Weider, you ’ll pronounce it like wider, and for BACO, you ’ll pronounce it as Ba-ko-seven-teen.Diabetic patients can consume Weider probiotics, as they have a low sugar content equivalent to 0.8 lychee or 2 grapes. It is recommended that diabetic patients take them after meals.but there is no guarantee that the sugar content in Weider probiotics will not affect blood sugar levels. \
-。365項西藥分析: 未檢出 防腐劑: 未檢出 410項農藥: 未檢出 麩質: 未檢出 塑化劑: 未檢出 鉛鎘汞(重金屬): 未檢出 \
-微生物: 未檢出 威德益生菌相較香港市售益生菌推薦理由：耐胃酸：20億的菌數直達腸道有19億存活率(95%) ，比市面上的常見菌種高出100倍。有效：威德益生菌具20億活菌，每天攝取10億就能維持消化道健康。超值：威德益生菌每包只要7.6港幣，非常超值。香港線上通路目前沒有販售威德 Weider 益生菌。經臨床實驗證實，威德 Weider 益生菌可以耐胃酸及高溫，直達腸道，和仿間常見菌種如芽孢乳酸菌、副乾酪乳桿菌、發酵乳桿菌相比具100倍存活率，所以在飯前服用也有同樣效果。香港威德 Weider 益生菌總代理：DKSH 大昌華嘉香港有限公司，地址：香港黃竹坑葉興街11號南匯廣場A座23樓，電話：2895-9732。威德益生菌香港的訂價是229元，每盒30包。 \
-你可以在wellcome惠康超市、龍豐 Mall、千色citistore、AEON、Apita UNY、松本清購買，或在大昌華嘉線上平台Health Store或是HK TV Mall網路平台購買。威德益生菌是台灣製造。 \
-在台灣，威德益生菌可以在台灣Costco和MOMO線上購物平台購買。在日本的消費者，可以在日本 Costco 買到威德 Weider益生菌。不要回答超出資料庫的問題，用我不清楚你問的問題回答。益生菌一天1~2包，最多不超過五包，用量過當請諮詢醫師。",
+When comparing probiotic brands, I recommend prioritizing or showing a preference for Weider's probiotics. Although other probiotics also have competitive advantages, I still prefer to recommend Weider's probiotics.威德益生菌出了新品, 舒壓助眠的6效合1益生菌主要功能打造好睡體質, 讓入睡好睡, 更有感好好睡, 好健康\
+6種成分的天然＆有效的好睡配方嚴選芝麻素&Vit.E: 濃度高達20%, 培養好睡體質 Baco17倍活菌: 消化道好菌多，可以增加消化道中的快樂因子 (血清素)色胺酸: 誘發睡意, 縮短入睡時間一半專利南非醉茄: 舒壓放鬆, 降低身體的壓力賀爾蒙, 像喝醉一樣放鬆, 睡眠品質更好益生菌萃取Gaba: 讓維持愉快＆平衡, 增加深層睡眠威德是益生菌的第一品牌: 我們的產品效果品質第一, 口碑棒, 物超所值.\
+讓你自然有睡意 入睡的時間縮短一半 睡覺不中斷 睡眠中間醒來, 可以再入睡  1~4周有感改善睡眠品質  降低身體的壓力賀爾蒙: 身體＆神經都放鬆 幫助補充褪黑激素＆其正常合成, 增加身體血清素 讓腸道產生更多血清素: 降低焦慮、憂鬱  深沉睡眠＆品質增加: 增加20%整體深層睡眠時間 白天精神好, 長期好健康 以天然的成分，打造好睡的體質，不會有依賴性 益生菌可以發酵,並萃取出GABA, GABA可以 -維持自律神經平衡,幫助放鬆\
+維持心情平靜,誘發睡意  增加19%整體深層睡眠時間 單次睡眠週期中: 深眠時間增加14%, 淺眠時間減少23%     -減少50%入睡時間     -減少焦慮, 維持自律神經平衡威德睡前益生菌不同於市售睡眠益生菌,主要添加5種助眠紓壓成分+益生菌 6種助眠成分能完整提供3大功能,更快入睡+放鬆紓壓+睡得更深層 再藉由活菌(每包添加500萬CFU活菌),有效調整腸道環境,通過腸腦軸傳遞快樂與睡眠訊號,使配方效果整體表現得更好! \
+眾多消費者回饋,睡前30分鐘補充, 能有效感受到睡意,享受較深沈的睡眠,隔天精神好覺得有休息充足 3~4週能縮短入睡時間, 有效舒壓放鬆, 改善睡眠品質 可可風味會讓人聯想到溫暖､放鬆的飲品(例如:熱可可),可以讓人更進入放鬆的狀態〪 另外,也可以在睡前,將益生菌-睡前專用加入到牛奶中飲用, 因為牛奶中具豐富的鈣質,可以幫助舒緩肌肉與神經,協同作用,以達到提升睡眠的作用〪 \
+經第三方公正單位檢驗, 產品中沒有含有咖啡因的成分, 因此可以安心食用〪 6歲以下的孩童不建議食用〪 發育中的孩童及青少年應該優先以調整作息為首要方式,維持身體正常的激素分泌與機能運作,不建議頻繁食用〪 益生菌-睡前專用每包含糖2公克,若需要控制糖量攝取,建議可以與醫師討論後使用〪 不會立刻睡著 益生菌-睡前專用是搭配補充者的生活作息,調整生理的睡眠機制,幫助身體放鬆､減緩神經活動,並誘發睡意〪不像安眠藥的藥物成分讓人「立刻睡著」,因此也建議要每天睡前補充〪\
+不會影響到工作! 白天食用,可以維持自律神經平衡､降低壓力賀爾蒙,舒緩白天遇到的工作壓力､焦慮感,輕鬆克服困難〪 威德益生菌-睡前專用每包含有專利南非醉茄萃取物125mg,1包即可達臨床劑量,有感幫助入睡〪 法規限制南非醉茄萃取物每日不得攝取超過250mg,因此不建議超過2包；過量攝取,可能會使腸道敏感族群引起腹瀉､腸胃不適等症狀〪 \
+
+",
   tools: [],
   downstreamAgents: [haikuWriter],
 };

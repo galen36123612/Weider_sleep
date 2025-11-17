@@ -8281,7 +8281,7 @@ function AppContent() {
             />
           </div>
           <div>
-            AI 營養師
+            獸醫 AI
           </div>
         </div>
         

@@ -421,7 +421,7 @@ export function useHandleServerEvent({
           setSessionStatus("CONNECTED");
           // 移除 session.id 和時間資訊的顯示
           // 改為添加歡迎訊息
-          addTranscriptMessage("welcome", "assistant", "你好，請問最近睡得還好嗎？");
+          addTranscriptMessage("welcome", "assistant", "嗨～歡迎來到線上 AI 獸醫助理，我特別熟悉米克斯犬、博美犬、柴犬，以及米克斯貓、英國短毛貓和美國短毛貓的常見健康問題，可以幫你做初步排查和緊急程度評估，我們先從寶貝是狗狗還是貓咪、大約幾歲開始說起，好嗎？");
         }
         break;
       }

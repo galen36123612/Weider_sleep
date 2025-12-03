@@ -8281,7 +8281,7 @@ function AppContent() {
             />
           </div>
           <div>
-            獸醫 AI
+            六十甲子籤 - 解籤 AI
           </div>
         </div>
         
